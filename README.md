@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @makwani
 - 👀 I’m interested in: lion hunting so as to marry many wives
 - 🌱 I’m currently learning: programming so as to improve my lion hunting skills
-- 💞️ I’m looking to collaborate: on on a lion hunt
+- 💞️ I’m looking to collaborate: on a lion hunt
 - 📫 How to reach me: makwani@yahoo.co.uk
 
 <!---
